@@ -1,1 +1,0 @@
-# TEDxAl-Neelain-University
